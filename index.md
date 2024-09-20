@@ -1,4 +1,3 @@
-AGC-Agri-Policy-Privacy
 Chính sách bảo mật
 
 CÔNG TY TNHH KTIMI VIỆT NAM cam kết bảo mật tuyệt đối thông tin cá nhân của khách hàng theo chính sách bảo vệ thông tin của doanh nghiệp và quy định của pháp luật Việt Nam. Dưới đây là các cập nhật và giải thích cần thiết liên quan đến quyền riêng tư của người dùng.
